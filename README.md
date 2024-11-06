@@ -1,3 +1,2 @@
 - 👋 Hi, I’m @lukaswde
 - 📫 mail@lukasw.de
-- 🌐 https://lukasw.de
